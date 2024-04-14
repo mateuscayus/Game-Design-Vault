@@ -1,1 +1,1 @@
-Siguiente subtítulo: [[3 Estandarte de juego]]
+Siguiente subtítulo: [[4 Estandarte de juego]]
