@@ -11,15 +11,15 @@ Para facilitar la navegación, se implementa un sistema de índices en cada tít
 
 **Índice:
 
-| Orden |      Nombre       |          Link del índice          |
-| :---: | :---------------: | :-------------------------------: |
-|   A   | Concepto general  | [[1. Concepto general - Índice]]  |
-|   B   |  Sistemas y MDA   |  [[1. Sistemas y MDA - Índice]]   |
-|   C   |  Mundo de juego   |  [[1. Mundo de juego - Índice]]   |
-|   D   |     Interfaz      |     [[1. Interfaz - Índice]]      |
-|   E   |       Arte        |       [[1. Arte - Índice]]        |
-|   F   |       Audio       |       [[1. Audio - Índice]]       |
-|   G   | Detalles técnicos | [[1. Detalles técnicos - Índice]] |
+| Orden |      Nombre      |         Link del índice          |
+| :---: | :--------------: | :------------------------------: |
+|   A   | Concepto general | [[1. Concepto general - Índice]] |
+|   B   |  Sistemas y MDA  |  [[1. Sistemas y MDA - Índice]]  |
+|   C   |  Mundo de juego  |  [[1. Mundo de juego - Índice]]  |
+|   D   |     Interfaz     |     [[1. Interfaz - Índice]]     |
+|   E   |       Arte       |       [[1. Arte - Índice]]       |
+|   F   |      Audio       |      [[1. Audio - Índice]]       |
+
 
 
 
