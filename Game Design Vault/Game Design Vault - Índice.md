@@ -16,7 +16,7 @@ Para facilitar la navegación, se implementa un sistema de índices en cada tít
 |   A   |    Concepto general     |    [[1. Concepto general - Índice]]     |
 |   B   |     Sistemas y MDA      |     [[1. Sistemas y MDA - Índice]]      |
 |   C   |     Mundo de juego      |     [[1. Mundo de juego - Índice]]      |
-|   D   | Arquitectura de niveles | [[1. Arquitectura de niveles - Índice]] |
+|   D   | Arquitectura de niveles | [[Arquitectura de niveles imágenes]] |
 |   E   |        Interfaz         |        [[1. Interfaz - Índice]]         |
 |   F   |          Arte           |          [[1. Arte - Índice]]           |
 |   G   |          Audio          |          [[1. Audio - Índice]]          |
