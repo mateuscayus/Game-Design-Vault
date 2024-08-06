@@ -1,0 +1,3 @@
+"La Creación" refiere un momento intermedio en el ciclo de muerte y renacimiento del mundo donde "[[El Creador]]" usa las [[Varas de la Creación]] para canalizar todo el [[Llakha]] disponible en el [[Río Eterno de la Creación]] y darle forma a la siguiente iteración del mundo _(ver el apartado: [[La Partición de los Reinos]])_, sus habitantes y sus preceptos morales y éticos primigenios.
+
+_Regresar:  [[MYTHOS]]_
