@@ -19,4 +19,4 @@ Se presenta como un cóndor bicéfalo antropomórfico.
 - Se alía con [[Qirat]].
 - Avisa a los dioses que los humanos están dejándolos de lado.
 
-*Regresar: [[PRINCIPALES]].*
+*Regresar: [[PERSONAJES PRINCIPALES]].*

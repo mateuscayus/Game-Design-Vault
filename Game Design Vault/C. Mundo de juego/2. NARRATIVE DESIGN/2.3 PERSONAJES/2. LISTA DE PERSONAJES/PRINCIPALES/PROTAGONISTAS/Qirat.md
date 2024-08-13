@@ -13,4 +13,4 @@
 - Qirat y [[Deidad de Qirat]] se alían.
 - Qirat desacra el eco de un templo desde dentro del [[2.1.2 Haqak Suyukuna]].
 
-*Regresar: [[PRINCIPALES]]*
+*Regresar: [[PERSONAJES PRINCIPALES]]*

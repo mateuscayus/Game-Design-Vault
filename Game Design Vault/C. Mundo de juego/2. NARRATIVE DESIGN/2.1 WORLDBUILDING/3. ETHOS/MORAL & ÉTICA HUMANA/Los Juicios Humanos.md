@@ -4,10 +4,10 @@ Cuando un humano es ajusticiado, el juicio siempre es encabezado por los lídere
 
 Dependiendo de la severidad del crimen que se haya realizado, un Chamán puede administrar el juicio que vea apropiado o concederle la amnistía en caso sea algo considerablemente inofensivo.
 
-| Acción Realizada                                         | Castigo                                                     |
-| -------------------------------------------------------- | ----------------------------------------------------------- |
-| Robar a algún integrante de la comunidad.                | Cortado de la mano.                                         |
-| Ocasionar daño en una comunidad por satisfacción propia. | Terminación de vida, Tortura.                               |
-| Profanación de una tumba, templo o sitio de poder.       | Destierro en el Reino Espiritual ([[2.1.2 Haqak Suyukuna]]) |
+|                     Acción Realizada                     |                           Castigo                           |
+| :------------------------------------------------------: | :---------------------------------------------------------: |
+|        Robar a algún integrante de la comunidad.         |                     Cortado de la mano.                     |
+| Ocasionar daño en una comunidad por satisfacción propia. |                Terminación de vida, Tortura.                |
+|    Profanación de una tumba, templo o sitio de poder.    | Destierro en el Reino Espiritual ([[2.1.2 Haqak Suyukuna]]) |
 
 *Regresar: [[ETHOS]]*

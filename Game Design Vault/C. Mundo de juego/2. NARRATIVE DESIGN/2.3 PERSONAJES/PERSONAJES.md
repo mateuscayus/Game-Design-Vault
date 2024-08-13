@@ -2,8 +2,8 @@ En la narrativa, los personajes son elementos esenciales que dan vida a las hist
 
 La taxonomía de los personajes de este proyecto son dos según su nivel de importancia:
 
-1. [[PRINCIPALES]]
-2. [[SECUNDARIOS]]
+1. [[PERSONAJES PRINCIPALES]]
+2. [[PERSONAJES SECUNDARIOS]]
 
 Además, para facilidad de lectura, estos estarán identificados por una etiqueta en su descripción conocida como "[[RANGOS NARRATIVOS]]".
 

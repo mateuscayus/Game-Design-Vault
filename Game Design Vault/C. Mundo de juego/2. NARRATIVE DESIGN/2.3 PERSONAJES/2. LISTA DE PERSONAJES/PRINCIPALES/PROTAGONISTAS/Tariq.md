@@ -29,4 +29,4 @@ Del follaje del [[2.1.2 Haqak Suyukuna]], [[Yachachiq Nanay]] se presenta ante T
 
 Durante la conversación, [[Yachachiq Nanay]] y Tariq son atacados por un grupo de [[2.2.5 Chinkasqa]]. Durante el combate, [[Yachachiq Nanay]] y Tariq, se fusionan.
 
-*Regresar: [[PRINCIPALES]]*
+*Regresar: [[PERSONAJES PRINCIPALES]]*

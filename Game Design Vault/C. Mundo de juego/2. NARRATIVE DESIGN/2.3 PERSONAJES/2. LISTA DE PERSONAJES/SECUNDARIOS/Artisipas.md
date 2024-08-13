@@ -36,4 +36,4 @@ Tras soltar una carcajada, Artisipas muere diciendo la única verdad que conoce.
 > *"Eres... tu..."*
 > - Artisipas a [[Tariq]] y [[Yachachiq Nanay]]
 
-Regresar: [[SECUNDARIOS]].
+Regresar: [[PERSONAJES SECUNDARIOS]].

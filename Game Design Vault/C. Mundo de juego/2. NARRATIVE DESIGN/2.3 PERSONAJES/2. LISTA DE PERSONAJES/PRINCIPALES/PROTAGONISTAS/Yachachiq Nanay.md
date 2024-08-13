@@ -24,4 +24,4 @@ En su dolor, Nanay escucha las plegarias de un integrante de los [[2.2.3 Chamane
 
 Tras conversar con [[Tariq]], se enfrentan a unos [[2.2.5 Chinkasqa]] que aparecen en su locación. Durante el combate, [[Tariq]] y Nanay se fusionan por primera vez.
 
-_Regresar: [[PRINCIPALES]]._
+_Regresar: [[PERSONAJES PRINCIPALES]]._

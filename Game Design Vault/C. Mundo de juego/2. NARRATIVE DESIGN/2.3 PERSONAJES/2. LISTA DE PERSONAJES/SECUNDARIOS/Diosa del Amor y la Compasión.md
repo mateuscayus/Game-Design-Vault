@@ -5,4 +5,4 @@
 > **ESTATUS:** Viva
 > **RANGO NARRATIVO:** Secundario
 
-*Regresar: [[SECUNDARIOS]].*
+*Regresar: [[PERSONAJES SECUNDARIOS]].*
