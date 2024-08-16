@@ -1,4 +1,4 @@
-Son aquellos personajes que desempeñan un rol mayor a lo largo de la trama central del la historia, con la capacidad de influenciarla para que esta avance o se retrase.
+Son aquellos que intervienen activamente en el desarrollo de la historia, liderando las diversas tramas que la componen.
 
 > *Para este ejemplo, tomemos los personajes principales de "The Last of Us".*
 > 
@@ -6,7 +6,7 @@ Son aquellos personajes que desempeñan un rol mayor a lo largo de la trama cent
 > 
 > *Por otro lado, durante el segundo juego, cambiamos de protagonista, siguiendo la venganza de Ellie, una historia en donde la presencia de Joel va perdiendo relevancia mientras más avanzamos en la misma.*
 
-Existen varios tipos de personajes principales,
+Existen varios tipos de personajes principales, y estos pueden ser distinguidos por los [[RANGOS NARRATIVOS]] que estos posean.
 
 **LISTA DE PERSONAJES PRINCIPALES**
 - [[Tariq]]

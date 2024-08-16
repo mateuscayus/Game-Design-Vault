@@ -1,0 +1,7 @@
+> *insertar definición del nodo*
+
+**ACONTECIMIENTOS EN LA HISTORIA**
+Durante la noche un grupo de pobladores profana las ofrendas dejadas a los dioses, fallando en mantener la calma en su pueblo. Una fisura se abre en el cielo y Tariq decide ir al [[c. Haqak Suyukuna]], para tratar de contactar directamente con los dioses.
+
+Regresar: [[b. Ayuda Sobrenatural]].
+Avanzar: [[d. Umbral]].

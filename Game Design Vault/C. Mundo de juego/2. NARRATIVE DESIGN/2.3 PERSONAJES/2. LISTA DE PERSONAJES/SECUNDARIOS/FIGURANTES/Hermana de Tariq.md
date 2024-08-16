@@ -1,9 +1,9 @@
 > **NOMBRE:** _(Pro Definir)_
-> **RAZA:** Humana (ver apartado: [[2.2.2 Humanos]])
-> **REINO DE ORIGEN:** [[2.1.1 Kay Suyukuna]]
+> **RAZA:** Humana (ver apartado: [[c. Humanos]])
+> **REINO DE ORIGEN:** [[b. Kay Suyukuna]]
 > **ESTATUS:** Muerta
 > **RANGO NARRATIVO:** Secundario (Figurante)
 
-Fue la hermana de [[Tariq]] e interés amoroso de [[Qirat]]. Su muerte lleva a [[Qirat]] a ir en contra de los preceptos de los [[2.2.3 Chamanes]] e intentar traerla de vuelta a la vida.
+Fue la hermana de [[Tariq]] e interés amoroso de [[Qirat]]. Su muerte lleva a [[Qirat]] a ir en contra de los preceptos de los [[d. Chamanes]] e intentar traerla de vuelta a la vida.
 
 _Regresar: [[PERSONAJES SECUNDARIOS]]

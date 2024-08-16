@@ -10,11 +10,11 @@ Este proyecto toma como base referencial las siguientes convenciones narrativas,
 **ELEMENTOS CONCEPTUALES**
 Desglosaremos la concepción de la narrativa del proyecto los siguientes puntos principales.
 
-- [[1. Tema]]
-- [[2. Tagline]]
-- [[3. Logline]]
-- [[4. Storyline]]
-- [[5. Sinopsis]]
-- [[6. Argumento]]
+- [[a. Tema]]
+- [[b. Tagline]]
+- [[c. Logline]]
+- [[d. Storyline]]
+- [[e. Sinopsis]]
+- [[f. Argumento]]
 
 *Regresar: [[0. ÍNDICE]]*

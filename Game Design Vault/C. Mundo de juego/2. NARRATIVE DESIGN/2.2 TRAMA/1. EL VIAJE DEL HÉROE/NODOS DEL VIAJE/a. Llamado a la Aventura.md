@@ -1,0 +1,7 @@
+> *insertar definición del nodo*
+
+**ACONTECIMIENTOS EN LA HISTORIA**
+La comunidad de [[Tariq]] se ve arrasada por una época de hambrunas, los aldeanos están preocupados por los tiempos por venir e instan al chamán de su pueblo a solicitar el apoyo de los dioses.
+
+Regresar: [[VIAJE DEL HÉROE]].
+Avanzar: [[b. Ayuda Sobrenatural]].

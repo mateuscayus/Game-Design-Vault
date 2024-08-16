@@ -2,19 +2,19 @@ Comprende los antecedentes históricos y la mitología del universo narrativo; g
 
 **ÍNDICE**
 1. *Elementos del Mundo*
-	- [[Inevitables]]
-	- [[Llakha]]
-	- [[Relación Simbiótico-Mutualista]]
-	- [[Río Eterno de la Creación]]
-	- [[Varas de la Creación]]
+	- [[b. Inevitables]]
+	- [[a. Llakha]]
+	- [[c. Relación Simbiótico-Mutualista]]
+	- [[d. Río Eterno de la Creación]]
+	- [[e. Varas de la Creación]]
 	
 2. *Eventos Mayores*
-	- [[La Creación]]
-	- [[La Partición de los Reinos]]
-	- [[Pachakuti]]
+	- [[a. La Creación]]
+	- [[b. La Partición de los Reinos]]
+	- [[c. Pachakuti]]
 	
 3. *Personajes Míticos*
-	- [[El Creador]]
-	- [[La Bestia]]
+	- [[a. El Creador]]
+	- [[b. La Bestia]]
 
 *Regresar: [[WORLDBUILDING]]*
