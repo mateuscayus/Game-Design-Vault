@@ -1,6 +1,6 @@
 > **NOMBRE:** POR DEFINIR
 > **RAZA:** Encarnación Divina *(ver apatado: [[b. Encarnaciones Divinas]])*
-> **PORTAFOLIO:** Orden, Caminos
+> **PORTAFOLIO:** Orden
 > **REINO DE ORIGEN:** [[d. Hanan Suyukuna]], [[e. Ukhu Suyukuna]]
 > **ESTATUS:** Vivo.
 > **RANGO NARRATIVO:** Principal
