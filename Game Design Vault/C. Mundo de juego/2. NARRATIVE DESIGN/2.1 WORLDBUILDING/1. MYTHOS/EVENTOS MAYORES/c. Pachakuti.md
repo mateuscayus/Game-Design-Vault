@@ -1,4 +1,4 @@
-Es el evento cataclísmico y de naturaleza impredecible que marca el fin del mundo. El Pachakuti forma parte del ciclo de la vida del mundo, siendo el estado previo a la llegada de [[b. La Bestia]] 
+Es el evento cataclísmico y de naturaleza impredecible que marca el fin del mundo. El Pachakuti forma parte del ciclo de la vida del mundo, siendo el estado previo a la llegada de [[b. La Bestia]].
 
 Así como todo proceso en un ciclo, el Pachakuti cuenta con un punto de no retorno, simbolizado por [[b. La Bestia]], cuya llegada está escrita en el mundo por los [[AXIOMAS DEL UNIVERSO]].
 
