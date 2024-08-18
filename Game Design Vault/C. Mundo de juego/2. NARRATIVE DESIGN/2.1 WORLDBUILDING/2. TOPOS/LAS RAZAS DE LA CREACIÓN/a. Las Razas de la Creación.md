@@ -7,4 +7,6 @@ A lo largo del ciclo de vida del mundo, múltiples razas han aparecido para pobl
 - [[e. Espíritus]]
 - [[f. Chinkasqa]]
 
+Finalmente, toda raza de la creación se encuentra sujeta al intercambio de [[a. Llakha]] por medio de la [[b. Transubstanciación Espiritual]], un sistema basado en la [[c. Relación Simbiótico-Mutualista]] del mundo.
+
 _Regresar: [[TOPOS]]_
