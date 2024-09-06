@@ -3,9 +3,9 @@ Son un ==conjunto de normas y reglas que se establecen en cada género== ya sea 
 
 Este proyecto toma como base referencial las siguientes convenciones narrativas, mas no serán seguidas de forma estricta.
 
-- [[El hombre contra dios]]
-- [[Drogas y psicodelia]]
-- [[Folklore amazónico]]
+- [[EL HOMBRE CONTRA DIOS]]
+- [[DROGAS Y PSICODELIA]]
+- [[FOLKLORE AMAZÓNICO]]
 
 **ELEMENTOS CONCEPTUALES**
 Desglosaremos la concepción de la narrativa del proyecto los siguientes puntos principales.
