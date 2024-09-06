@@ -2,7 +2,7 @@ El subgénero maravilloso es una forma narrativa en la que los acontecimientos s
 
 Características clave del subgénero maravilloso:
 
-**Aceptación sobrenatural**
+**ACEPTACIÓN SOBRENATURAL**
 
 En las historias maravillosas, la presencia de magia, criaturas de otro mundo o acontecimientos fantásticos es una parte inherente de la lógica del mundo. Tanto los personajes como el universo narrativo tratan lo sobrenatural como natural. No es necesario explicar ni racionalizar estos elementos, ya que están perfectamente integrados en el mundo.
 Influencias míticas y legendarias:
@@ -28,3 +28,5 @@ Maravilloso puro: Los elementos sobrenaturales son completamente aceptados sin l
 Maravilloso con justificación: pueden existir elementos sobrenaturales, pero hay un intento de proporcionar algún tipo de justificación o explicación interna para ellos (por ejemplo, tecnología antigua o conocimiento oculto).
 
 Maravilloso hiperbólico: los eventos se exageran a una escala sobrehumana o cósmica, que a menudo se encuentra en mitos o historias épicas donde personajes como dioses y semidioses realizan hazañas extraordinarias.
+
+*Regresar: [[CONCEPTUALIZACIÓN NARRATIVA]]*
