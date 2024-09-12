@@ -8,9 +8,9 @@
 De no ser por los tatuajes ceremoniales que cubren su cuerpo, Tariq se ve como un humano común y corriente. Viste con las prendas austeras típicas de los [[d. Chamanes]], cubriendo su cuerpo de la cintura para abajo y yendo parcialmente descalzo.
 
 **HOJA DE VIDA**
-La vida de Tariq fue en algún momento muy tranquila y llevadera, teniendo una fuerte amistad con [[Qirat]], próximo líder espiritual de su pueblo y quien tiene una relación amorosa con [[Hermana de Tariq]].
+La vida de Tariq fue en algún momento muy tranquila y llevadera, teniendo una fuerte amistad con [[Qirat]], próximo líder espiritual de su pueblo y quien tiene una relación amorosa con [[Irari]].
 
-Todo esto cambia cuando, desafortunadamente, la [[Hermana de Tariq]] muere por una extraña enfermedad, impulsando a [[Qirat]] a quebrantar los preceptos de [[d. Chamanes]], ingresando al [[c. Haqak Suyukuna]] e intentar retirar [[a. Llakha]] de su hermana para traerla de vuelta a la vida.
+Todo esto cambia cuando, desafortunadamente, la [[Irari]] muere por una extraña enfermedad, impulsando a [[Qirat]] a quebrantar los preceptos de [[d. Chamanes]], ingresando al [[c. Haqak Suyukuna]] e intentar retirar [[a. Llakha]] de su hermana para traerla de vuelta a la vida.
 
 Cuando [[Qirat]] regresa del [[c. Haqak Suyukuna]], Tariq se entera de lo que ha hecho y, en secreto, reúne un grupo de chamanes para ajusticiar a [[Qirat]]. [[d. Chamanes]] deciden exiliar a [[Qirat]] al [[c. Haqak Suyukuna]], en donde le imploran a [[Deidad de Qirat]], el dios del orden, que ajusticie al trasgresor. Finalmente, Tariq y el grupo de chamanes graban una serie de runas en el cuerpo de [[Qirat]] que le prohíben ingresar nuevamente al [[b. Kay Suyukuna]], encerrándolo eternamente en el [[c. Haqak Suyukuna]].
 

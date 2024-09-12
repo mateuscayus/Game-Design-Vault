@@ -1,4 +1,4 @@
-> **NOMBRE:** _(Pro Definir)_
+> **NOMBRE:** Irari
 > **RAZA:** Humana (ver apartado: [[c. Humanos]])
 > **REINO DE ORIGEN:** [[b. Kay Suyukuna]]
 > **ESTATUS:** Muerta

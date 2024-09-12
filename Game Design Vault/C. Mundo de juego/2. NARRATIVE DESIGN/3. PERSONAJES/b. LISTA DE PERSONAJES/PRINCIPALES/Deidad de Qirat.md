@@ -13,7 +13,7 @@ Se presenta como un cóndor bicéfalo antropomórfico.
 - REDACTED cuenta las almas que pasarán por el [[c. Haqak Suyukuna]] en base a la cantidad de hebras que una pluma caída posee.
 
 **HOJA DE VIDA**
-- Se percata de la desaparición del alma de la [[Hermana de Tariq]] y al investigar se da cuenta que [[Qirat]] está intentando regresarla al mundo de los vivos.
+- Se percata de la desaparición del alma de la [[Irari]] y al investigar se da cuenta que [[Qirat]] está intentando regresarla al mundo de los vivos.
 - Recibe una señal de contacto de los [[d. Chamanes]] en el [[c. Haqak Suyukuna]] con el objetivo de ajusticiar a [[Qirat]].
 - Durante su exilio, [[Qirat]] justifica exitosamente sus acciones, cambiando la percepción de la encarnacion del orden.
 - Se alía con [[Qirat]].

@@ -12,7 +12,7 @@ Existen varios tipos de personajes secundarios, y estos pueden ser distinguidos 
 
 **LISTA DE PERSONAJES SECUNDARIOS**
 - [[Artisipas]]
-- [[Hermana de Tariq]]
+- [[Irari]]
 - [[Diosa del Amor y la Compasión]]
 
 _Regresar: [[PERSONAJES]]_

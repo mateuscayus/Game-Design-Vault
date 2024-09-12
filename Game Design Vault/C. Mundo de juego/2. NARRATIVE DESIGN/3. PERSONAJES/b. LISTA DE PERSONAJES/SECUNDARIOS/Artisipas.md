@@ -22,7 +22,7 @@ A pesar de encarnar el concepto del engaño y la ilusión, [[a. El Creador]] le 
 > Te imparto este conocimiento Artisipas... porque nadie, te creerá."*
 > - Díalogo de [[a. El Creador]] hacia un joven Artisipas.
 
-Varios siglos después, Artisipas descubre que un integrante de los [[d. Chamanes]] conocido como [[Qirat]] está intentando regresar a una humana ([[Hermana de Tariq]]) a la vida. Artisipas aprovecha la debilidad emocional de [[Qirat]] a su favor, haciéndole creer que es posible regresar a alguien a la vida, siempre y cuando logre sacar su alma del [[c. Haqak Suyukuna]].
+Varios siglos después, Artisipas descubre que un integrante de los [[d. Chamanes]] conocido como [[Qirat]] está intentando regresar a una humana ([[Irari]]) a la vida. Artisipas aprovecha la debilidad emocional de [[Qirat]] a su favor, haciéndole creer que es posible regresar a alguien a la vida, siempre y cuando logre sacar su alma del [[c. Haqak Suyukuna]].
 
 Este evento desemboca en múltiples conflictos entre las [[b. Encarnaciones Divinas]], quienes empiezan a perder poder debido al abandono de los humanos, incluyéndolo, ya que el estado actual del mundo evita que la gente caiga en el engaño y la ilusión, llevándolo a mentirse a si mismo para mantenerse con vida.
 

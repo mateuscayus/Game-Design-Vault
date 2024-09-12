@@ -1,4 +1,4 @@
-Es la mezcla del análisis psicológico de [[El Proceso de la Pérdida]] con el [[Paradigma Narrativo de Syd Field]], donde, a diferencia de su estructura principal, se centra en las acciones entre los puntos.
+Es la mezcla del análisis psicológico de [[EL PROCESO DE LA PÉRDIDA]] con el [[PARADIGMA NARRATIVO DE SYD FIELD]], donde, a diferencia de su estructura principal, se centra en las acciones entre los puntos.
 
 **"D" - DENIAL**
 Explora el rechazo (voluntario) del personaje principal hacia el tema central de la historia. Se sitúa después del primer punto de giro y dura hasta la primera etapa de la confrontación (pinch).
@@ -14,6 +14,5 @@ Explora el punto de quiebre del personaje principal ante la inevitabilidad de la
 
 **"A" - ACCEPTANCE**
 Explora la catarsis y aceptación hacia el tema central de la historia por parte del personaje principal. Se extiende desde el segundo punto de giro, pasando por el clímax y concluyendo en el desenlace de la historia.
-
 
 *Regresar: [[ESTRUCTURAS NARRATIVAS]]*
