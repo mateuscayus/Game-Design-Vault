@@ -3,7 +3,7 @@
 > **PORTAFOLIO:** Ira, Dolor.
 > **REINO DE ORIGEN:** [[e. Ukhu Suyukuna]]
 > **ESTATUS:** Vivo, Fusionado (con "[[Tariq]]")
-> **RANGO NARRATIVO:** -
+> **RANGO NARRATIVO:** Principal Deuteragonista
 
 _Su nombre proviene del quechua “Yachachiq” (Maestro) y “Nanay” (Dolor)._
 
@@ -11,9 +11,9 @@ _Su nombre proviene del quechua “Yachachiq” (Maestro) y “Nanay” (Dolor).
 Nanay se presenta como un felino con características de jaguar y una serie tentáculos como apéndices en la espalda.
 
 **TRASFONDO**
-Desde su nacimiento, Nanay fue mal visto por las demás deidades, siempre le atribuyeron la culpa de las desgracias del mundo., todos, a excepción de una diosa, [[Diosa del Amor y la Compasión]], quien, debido a su naturaleza, no podía sentir más que compasión por el dios del dolor.
+Desde su nacimiento, Nanay fue mal visto por las demás deidades, siempre le atribuyeron la culpa de las desgracias del mundo., todos, a excepción de una diosa, [[Maywakuyai]], quien, debido a su naturaleza, no podía sentir más que compasión por el dios del dolor.
 
-Durante una interacción con la [[Diosa del Amor y la Compasión]], Nanay la hiere de gravedad. Al ver la gravedad de la herida, decide recluirse al pensar que la situación será malentendida.
+Durante una interacción con la [[Maywakuyai]], Nanay la hiere de gravedad. Al ver la gravedad de la herida, decide recluirse al pensar que la situación será malentendida.
 
 **ACTUALIDAD**
 El actuar de [[Qirat]] afecta en la recolección de [[a. Llakha]] de la mano de [[b. Encarnaciones Divinas]], llevando a Nanay a investigar la situación en el [[c. Haqak Suyukuna]]. Tras unos momentos explorando, encuentra a un miembro de los [[d. Chamanes]] desacrando el eco de un templo humano.

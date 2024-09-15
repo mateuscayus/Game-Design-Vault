@@ -8,6 +8,6 @@ Al representar las facetas del mundo, cada encarnación es única, al ser, liter
 **LISTA DE ENCARNACIONES DIVINAS**
 - [[Yachachiq Nanay]]
 - [[Artisipas]]
-- [[Deidad de Qirat]]
+- [[Qhawaq Nunañan]]
 
 _Regresar: [[a. Las Razas de la Creación]]_

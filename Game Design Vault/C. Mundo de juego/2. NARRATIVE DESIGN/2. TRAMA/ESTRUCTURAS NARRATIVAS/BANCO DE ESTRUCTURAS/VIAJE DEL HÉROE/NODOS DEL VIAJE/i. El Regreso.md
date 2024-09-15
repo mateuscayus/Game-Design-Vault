@@ -1,7 +1,7 @@
 > *insertar definición del nodo*
 
 **ACONTECIMIENTOS EN LA HISTORIA**
-[[Tariq]] y [[Yachachiq Nanay]] acaban con [[Qirat]] y [[Deidad de Qirat]]. Luego de absorber su poder combinado, "[[b. La Bestia]]" toma el manto de [[a. El Creador]], con lo que [[Tariq]] y [[Yachachiq Nanay]] se disponen a crear un nuevo mundo que corrija las fallas del anterior.
+[[Tariq]] y [[Yachachiq Nanay]] acaban con [[Qirat]] y [[Qhawaq Nunañan]]. Luego de absorber su poder combinado, "[[b. La Bestia]]" toma el manto de [[a. El Creador]], con lo que [[Tariq]] y [[Yachachiq Nanay]] se disponen a crear un nuevo mundo que corrija las fallas del anterior.
 
 Al terminar el proceso de la creación [[Yachachiq Nanay]] se separa de [[Tariq]], a quien le entrega el portafolio del engaño y las ilusiones, junto a la única verdad del mundo.
 

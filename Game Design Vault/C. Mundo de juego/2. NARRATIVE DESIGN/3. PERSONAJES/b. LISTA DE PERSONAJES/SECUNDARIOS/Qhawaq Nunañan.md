@@ -1,9 +1,9 @@
-> **NOMBRE:** POR DEFINIR
+> **NOMBRE:** Qhawaq Nunañan
 > **RAZA:** Encarnación Divina *(ver apatado: [[b. Encarnaciones Divinas]])*
 > **PORTAFOLIO:** Orden
 > **REINO DE ORIGEN:** [[d. Hanan Suyukuna]], [[e. Ukhu Suyukuna]]
 > **ESTATUS:** Vivo.
-> **RANGO NARRATIVO:** Principal
+> **RANGO NARRATIVO:** Secundario Mayor
 
 **DESCRIPCIÓN FÍSICA**
 Se presenta como un cóndor bicéfalo antropomórfico.

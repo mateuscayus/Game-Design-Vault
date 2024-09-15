@@ -12,6 +12,6 @@ Existen varios tipos de personajes principales, y estos pueden ser distinguidos 
 - [[Tariq]]
 - [[Yachachiq Nanay]]
 - [[Qirat]]
-- [[Deidad de Qirat]]
+- [[Qhawaq Nunañan]]
 
 _Regresar: [[PERSONAJES]]_

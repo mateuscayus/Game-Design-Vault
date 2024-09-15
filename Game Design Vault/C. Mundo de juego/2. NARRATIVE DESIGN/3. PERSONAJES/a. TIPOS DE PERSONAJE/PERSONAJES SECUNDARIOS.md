@@ -13,6 +13,6 @@ Existen varios tipos de personajes secundarios, y estos pueden ser distinguidos 
 **LISTA DE PERSONAJES SECUNDARIOS**
 - [[Artisipas]]
 - [[Irari]]
-- [[Diosa del Amor y la Compasión]]
+- [[Maywakuyai]]
 
 _Regresar: [[PERSONAJES]]_

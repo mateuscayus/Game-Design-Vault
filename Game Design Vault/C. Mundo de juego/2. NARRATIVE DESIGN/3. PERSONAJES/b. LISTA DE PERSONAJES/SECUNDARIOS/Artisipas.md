@@ -3,7 +3,7 @@
 > **PORTAFOLIO:** Engaño, Ilusiones
 > **REINO DE ORIGEN:** [[e. Ukhu Suyukuna]]
 > **ESTATUS:** Vivo.
-> **RANGO NARRATIVO:** Secundario
+> **RANGO NARRATIVO:** Secundario Mayor
 
 **ARTISIPAS** - _Desglosado del quechua “Arti” (Mentira) y “Sipas” (Señor)._
 
