@@ -3,7 +3,8 @@ Las estructuras narrativas funcionan como barreras que delimitan el alcance de u
 Existen múltiples tipos de estructuras narrativas y cada una cuenta con elementos puntuales a la hora de adaptar una historia; es nuestro trabajo como storytellers usar la (o las) estructuras que mejor se adecúen a nuestras necesidades.
 
 1. [[VIAJE DEL HÉROE]]
-2. [[ESTRUCTURA DWNDA]]
+2. [[PARADIGMA NARRATIVO DE SYD FIELD]]
+3. [[ESTRUCTURA DWNDA]]
 
 A pesar de tener una forma "estructurada", una estructura narrativa siempre puede ser reinterpretada para que cumpla con nuestras necesidades.
 

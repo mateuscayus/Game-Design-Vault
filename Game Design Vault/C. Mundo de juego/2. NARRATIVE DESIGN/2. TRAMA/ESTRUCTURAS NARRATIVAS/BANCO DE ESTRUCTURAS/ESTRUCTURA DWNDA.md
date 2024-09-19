@@ -21,5 +21,6 @@ Explora el punto de quiebre del personaje principal ante la inevitabilidad de la
 - **"A" - ACCEPTANCE**
 Explora la catarsis y aceptación hacia el tema central de la historia por parte del personaje principal. Se extiende desde el segundo punto de giro, pasando por el clímax y concluyendo en el desenlace de la historia.
 
+>*Para seguir la historia de "Shaman's Oath: Shadows of the Divine", revisar la nota "[[EL DWNDA DE SHAMAN'S OATH]]" bajo el apartado TRAMA PRINCIPAL.*
 
 *Regresar: [[ESTRUCTURAS NARRATIVAS]]*

@@ -7,3 +7,5 @@ A continuación, los axiomas:
 3. La muerte de una Encarnación Divina *(ver apartado: [[b. Encarnaciones Divinas]])* está ligada a su presencia en el mundo; si todo lo que una encarnación representa es eliminado, la encarnación correspondiente perece.
 4. La llegada de "[[b. La Bestia]]" es inevitable (ver apartado: [[b. Inevitables]]) en el mundo y marca punto de no retorno en el [[c. Pachakuti]].
 5. El mundo está vinculado a un ciclo de muerte y renacimiento.
+
+*Regresar: [[WORLDBUILDING]]*
