@@ -1,5 +1,5 @@
 > **NOMBRE:** Qirat
-> **RAZA:** Humano _(ver apartado: [[c. Humanos]])_, Chamán _(ver apartado: [[d. Chamanes]])_
+> **RAZA:** Chamán *(ver apartado: [[d. Chamanes]])*, [[g. Yatunllaqi]]
 > **REINO DE ORIGEN:** [[b. Kay Suyukuna]] (Previamente), [[c. Haqak Suyukuna]]
 > **ESTATUS:** Vivo _(Exiliado)_
 > **RANGO NARRATIVO:** Principal Antagonista
