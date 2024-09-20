@@ -4,6 +4,8 @@
 > **ESTATUS:** Vivo _(Exiliado)_
 > **RANGO NARRATIVO:** Principal Antagonista
 
+
+
 **HOJA DE VIDA**
 - Fue el mejor amigo de [[Tariq]] y la pareja de la [[Irari]].
 - Es engañado por [[Artisipas]], quien le hace creer que traer de vuelta a la vida a alguien es posible.
