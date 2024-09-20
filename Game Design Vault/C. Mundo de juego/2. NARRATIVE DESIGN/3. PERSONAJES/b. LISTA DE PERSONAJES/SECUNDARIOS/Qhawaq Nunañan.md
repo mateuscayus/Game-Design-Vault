@@ -1,22 +1,18 @@
 > **NOMBRE:** Qhawaq Nunañan
 > **RAZA:** Encarnación Divina *(ver apatado: [[b. Encarnaciones Divinas]])*
-> **PORTAFOLIO:** Orden
+> **PORTAFOLIO:** Caminos
 > **REINO DE ORIGEN:** [[d. Hanan Suyukuna]], [[e. Ukhu Suyukuna]]
 > **ESTATUS:** Vivo.
 > **RANGO NARRATIVO:** Secundario Mayor
 
+**TUQUSKA WAÑUY** - _Desglosado del quechua “Qhawak” (El que observa), “Nuna” (Espíritu/Alma) y "Ñan" (Camino)._
+
 **DESCRIPCIÓN FÍSICA**
-Se presenta como un cóndor bicéfalo antropomórfico.
+Se presenta como un cóndor bicéfalo con rasgos antropomórficos. Las plumas que adornan su cuerpo son los mapas de los caminos que todo integrante de [[a. Las Razas de la Creación]] debe recorrer a lo largo de su vida.
 
-- Es la deidad que observa los caminos de todas las personas, desde su nacimiento hasta que se vuelven uno con el universo.
-- Es el dios que abre las puertas del [[d. Hanan Suyukuna]] o al [[e. Ukhu Suyukuna]] a las almas que terminan su "viaje" dentro del [[c. Haqak Suyukuna]].
-- REDACTED cuenta las almas que pasarán por el [[c. Haqak Suyukuna]] en base a la cantidad de hebras que una pluma caída posee.
+**TRASFONDO**
+[[Qhawaq Nunañan]], la encarnación de los caminos, observando los caminos de todas [[a. Las Razas de la Creación]], desde su nacimiento hasta que regresan al flujo del [[a. Llakha]] dentro del [[c. Haqak Suyukuna]].
 
-**HOJA DE VIDA**
-- Se percata de la desaparición del alma de la [[Irari]] y al investigar se da cuenta que [[Qirat]] está intentando regresarla al mundo de los vivos.
-- Recibe una señal de contacto de los [[d. Chamanes]] en el [[c. Haqak Suyukuna]] con el objetivo de ajusticiar a [[Qirat]].
-- Durante su exilio, [[Qirat]] justifica exitosamente sus acciones, cambiando la percepción de la encarnacion del orden.
-- Se alía con [[Qirat]].
-- Avisa a los dioses que los humanos están dejándolos de lado.
+Conoce a [[Qirat]] cuando este está encargándose de liberar el [[c. Haqak Suyukuna]] de los [[g. Yatunllaqi]] presentes en el reino.
 
 *Regresar: [[PERSONAJES PRINCIPALES]].*
