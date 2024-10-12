@@ -28,6 +28,25 @@ Al caer, un fragmento de [[Saphi Puquna]] es absorbido inconscientemente por [[T
 Cuando [[Saphi Puquna]] deja de existir, [[Tariq]] y [[Yachachiq Nanay]] se separan en sus propias entidades nuevamente y, mientras [[Yachachiq Nanay]] parece estar tranquilo, [[Tariq]] cae en un cuadro de ira y desesperación al haber acabado con la vida de aquella entidad a la que siempre le rindió culto y respeto.
 
 **DESARROLLO**
+Tras la muerte de [[Saphi Puquna]], [[Tariq]] cae en un cuadro de ira y desesperación, otorgándole poder a [[Yachachiq Nanay]], quien toma control de la simbiosis entre ambos, guiando a [[Tariq]] en su sobrecarga de ira desenfrenada.
+
+Juntos atacan grandes grupos de [[f. Chinkasqa]] con el objetivo de aliviar sus emociones.
+
+Durante su rabia [[Tariq]] y [[Yachachiq Nanay]] tienen un momento entre los dos donde el primero le pregunta a la encarnación quién es el responsable de generar algo así, [[Yachachiq Nanay]], sin saber la respuesta le comenta a [[Tariq]] que no tiene idea, pero que usualmente este tipo de incidentes son debido a la encarnación divina del engaño y las ilusiones, [[Artisipas]].
+
+[[Tariq]], en su ira, le dice a [[Yachachiq Nanay]] que lo lleve donde este "[[Artisipas]]". [[Yachachiq Nanay]] no opone resistencia y juntos empiezan a atravesar el [[c. Haqak Suyukuna]].
+
+Después de un largo tiempo explorando, [[Tariq]] y [[Yachachiq Nanay]] llegan a un área del [[c. Haqak Suyukuna]] altamente influenciada por la esencia de [[Artisipas]].
+
+[[Tariq]] y [[Yachachiq Nanay]] se adentran en esta versión trastornada del [[c. Haqak Suyukuna]], luchando contra hordas de [[f. Chinkasqa]] y descubriendo nuevos poderes, atravesando los engaños de la encarnación de las ilusiones y luchando aún más, llegan hacia la morada de [[Artisipas]].
+
+[[Artisipas]] provoca a [[Tariq]] con mentiras e ilusiones de su vida, sin embargo, su ira intensificada por la presencia de [[Yachachiq Nanay]] evita que este caiga en el engaño de la encarnación. [[Tariq]] carga contra [[Artisipas]] usando sus nuevos poderes y evitando que la deidad pueda escapar de sus manos.
+
+Una dura batalla transcurre hasta que [[Tariq]] y [[Yachachiq Nanay]] agarran a [[Artisipas]] altamente debilitado. [[Artisipas]] por un momento tiene una epifanía, recordando vagamente los momentos de su nacimiento en los albores de la creación, levantando la mirada observa a [[Tariq]] en su forma fusionada con [[Yachachiq Nanay]], pudiendo solo esbozar una sonrisa reconoce a la fusión como el inicio de un nuevo comienzo: "Eres tu..." dice la encarnación del engaño, muriendo al ser atravesado por las garras de [[Yachachiq Nanay]] al final del combate.
+
+Finalmente, [[Tariq]] y [[Yachachiq Nanay]] absorben un fragmento del [[a. Llakha]] de [[Artisipas]] eliminando el concepto del engaño y las ilusiones del mundo.
+
+
 
 **DESENLACE**
 La tensión es alta, [[Qirat]] escapa del dominio del amor y la compasión tras acabar con la vida de [[Maywakuyai]] frente a los ojos de [[Tariq]] y [[Yachachiq Nanay]].
