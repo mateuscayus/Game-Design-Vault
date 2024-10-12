@@ -1,1 +1,1 @@
-Pelearás por lo que tu crees que es lo correcto y descubrirás que tus acciones llevan siempre al mismo destino final.
+Salva tu tribu, confronta a los dioses, devela el ciclo eterno.

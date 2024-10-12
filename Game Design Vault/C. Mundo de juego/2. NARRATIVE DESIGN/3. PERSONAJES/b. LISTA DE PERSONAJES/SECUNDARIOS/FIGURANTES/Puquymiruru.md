@@ -1,7 +1,6 @@
-
 > **NOMBRE:** Puquymiruru
 > **RAZA:** Encarnación Divina *(ver apatado: [[b. Encarnaciones Divinas]])*
-> **PORTAFOLIO:** Agrucultura y Cosecha
+> **PORTAFOLIO:** Agricultura y Cosecha
 > **REINO DE ORIGEN:** [[d. Hanan Suyukuna]]
 > **ESTATUS:** Muerta
 > **RANGO NARRATIVO:** Figurante

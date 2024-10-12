@@ -1,1 +1,0 @@
-Salva tu tribu, confronta a los dioses, devela el ciclo eterno.
