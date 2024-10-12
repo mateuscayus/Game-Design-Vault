@@ -46,7 +46,33 @@ Una dura batalla transcurre hasta que [[Tariq]] y [[Yachachiq Nanay]] agarran a 
 
 Finalmente, [[Tariq]] y [[Yachachiq Nanay]] absorben un fragmento del [[a. Llakha]] de [[Artisipas]] eliminando el concepto del engaño y las ilusiones del mundo.
 
+[[Tariq]] no se siente mucha diferencia en su estado anímico, aún sintiéndose culpable por todo lo que está ocurriendo. [[Yachachiq Nanay]], dentro de [[Tariq]] se comunica con el y le insta a seguir moviéndose, sin más discusión, [[Tariq]] se levanta y juntos salen del dominio de [[Artisipas]].
 
+Caminando de nuevo por el [[c. Haqak Suyukuna]], [[Tariq]] recuerda todo lo ocurrido antes de convertirse en el líder espiritual de su aldea, cómo detuvo a su viejo amigo [[Qirat]] de revivir a su hermana [[Irari]] por ir en contra de los preceptos chamánicos, cómo lo encerró en el [[c. Haqak Suyukuna]] condenándolo a un destino peor que la muerte, y cómo tomó el puesto que él debía tener.
+
+Sumido en un estado de duda y dolor, [[Tariq]] le dice a [[Yachachiq Nanay]] que va a regresar al [[Asentamiento de Rimawara]] para darle las malas noticias a su gente.
+
+Tras atravesar el [[c. Haqak Suyukuna]], [[Tariq]] llega al [[Asentamiento de Rimawara]], siendo recibido por los lugareños con odio y repudio. [[Tariq]] no comprende porqué todos lo tratan de esa forma hasta que recuerda lo ocurrido con [[Saphi Puquna]] y la naturaleza a su alrededor; asumiendo que al eliminar a [[Artisipas]], no tiene caso contarle a los habitantes de lo ocurrido ya que probablemente ya lo saben. Los rimawarenses culpan a [[Tariq]] de todo lo ocurrido, recalcándole que jamás debió haber castigado a [[Qirat]] y que probablemente hizo todo lo que hizo para volverse el líder chamánico por celos hacia su mejor amigo.
+
+Mientras todo esto está ocurriendo, [[Yachachiq Nanay]] experimenta pro primera vez la emoción que él genera en los demás, sin comprenderlo, pero aún así llamándole la atención.
+
+Momentos después, [[Tariq]] camina hacia el cementerio de su aldea, yendo al árbol donde enterró a su hermana [[Irari]].
+
+[[Tariq]] intenta por unos momentos manipular el [[a. Llakha]] remanente del lugar de descanso de su hermana con el objetivo de terminar lo que [[Qirat]] inició, pero se detiene tras unos momentos, se disculpa con su hermana y se incorpora para irse.
+
+Cuando [[Tariq]] y [[Yachachiq Nanay]] están saliendo del cementerio de Rimawara, [[Yachachiq Nanay]] le dice a [[Tariq]] que siente una presencia; momentos después, se encuentran con [[Tuquska Wañuy]], la encarnación de la muerte.
+
+[[Tuquska Wañuy]] habla por unos momentos con [[Tariq]] y [[Yachachiq Nanay]], diciéndoles que no es la primera vez que un humano intenta hacer acto de nigromancia, además de ser un acto imperdonable a sus ojos.
+
+[[Tuquska Wañuy]] carga contra [[Tariq]] y [[Yachachiq Nanay]] en el cementerio de Rimawara, iniciando una nueva pelea contra una de las [[b. Encarnaciones Divinas]].
+
+[[Tariq]] y [[Yachachiq Nanay]] luchan con [[Tuquska Wañuy]], [[Tariq]] menciona que si no hubiese intervenido, nada de esto habría pasado, haciendo una catarsis frente a la encarnación de la muerte, quien lentamente empieza a retroceder debido al poder combinado de [[Tariq]] y [[Yachachiq Nanay]]
+
+Finalmente, [[Tariq]] logra derrotar a [[Tuquska Wañuy]] usando los poderes adquiridos de [[Saphi Puquna]] y [[Artisipas]], así como los poderes de [[Yachachiq Nanay]]. Agarrando por los cuernos a [[Tuquska Wañuy]] este le ofrece la posibilidad de tener a su hermana nuevamente, pero tras considerarlo por un momento, [[Tariq]] acaba con la vida de la encarnación de la muerte, diciendo que él no traería a su hermana a un mundo como este, donde la gente está agonizando, donde no pueden cargar con la realidad del mundo, y sobre todo, un mundo donde el sufrimiento no acabará después de acabar con él.
+
+[[Tariq]] y [[Yachachiq Nanay]] absorben el [[a. Llakha]] de [[Tuquska Wañuy]].
+
+Con la encarnación de la muerte fuera del [[c. Haqak Suyukuna]], los aldeanos del [[Asentamiento de Rimawara]] condenan a [[Tariq]] por quitarles la última piedad que solo la muerte les habría podido conceder, este estado hace que todos los rimawarenses se conviertan en [[f. Chinkasqa]] dispuestos a acabar con [[Tariq]]. Considerando todo esto, [[Tariq]] simplemente se incorpora y se prepara para acabar con la existencia de sus antiguos vecinos, amigos y protegidos.
 
 **DESENLACE**
 La tensión es alta, [[Qirat]] escapa del dominio del amor y la compasión tras acabar con la vida de [[Maywakuyai]] frente a los ojos de [[Tariq]] y [[Yachachiq Nanay]].
