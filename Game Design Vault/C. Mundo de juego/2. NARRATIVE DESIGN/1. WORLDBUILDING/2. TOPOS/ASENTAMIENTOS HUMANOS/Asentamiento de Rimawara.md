@@ -4,6 +4,6 @@ Sus principales actividades eran la agricultura y la ganadería, así como la co
 
 Los integrantes del asentamiento de Rimawara no creen que Rimawara sea un lugar estático, existiendo donde sea que sus habitantes estén.
 
-La localidad original de Rimawara fue quedó destruida tras el evento conocido como [[f. La Caída de Rimawara]], donde un [[g. Yatunllaqi]] acabó con el área circundante y la vida de múltiples humanos pertenecientes a este asentamiento, entro ellos: la hermana de [[Tariq]] y pareja de [[Qirat]].
+La localidad original de Rimawara quedó destruida tras el evento conocido como [[f. La Caída de Rimawara]], donde un [[g. Yatunllaqi]] acabó con el área circundante y la vida de múltiples humanos pertenecientes a este asentamiento, entro ellos: la hermana de [[Tariq]] y pareja de [[Qirat]].
 
 *Regresar: [[TOPOS]]*

@@ -50,37 +50,61 @@ Finalmente, [[Tariq]] y [[Yachachiq Nanay]] absorben un fragmento del [[a. Llakh
 
 Caminando de nuevo por el [[c. Haqak Suyukuna]], [[Tariq]] recuerda todo lo ocurrido antes de convertirse en el líder espiritual de su aldea, cómo detuvo a su viejo amigo [[Qirat]] de revivir a su hermana [[Irari]] por ir en contra de los preceptos chamánicos, cómo lo encerró en el [[c. Haqak Suyukuna]] condenándolo a un destino peor que la muerte, y cómo tomó el puesto que él debía tener.
 
-Sumido en un estado de duda y dolor, [[Tariq]] le dice a [[Yachachiq Nanay]] que va a regresar al [[Asentamiento de Rimawara]] para darle las malas noticias a su gente.
+Sumido en un estado de duda y dolor, [[Tariq]] le dice a [[Yachachiq Nanay]] que deben desviar su viaje por un momento, regresando al [[Asentamiento de Rimawara]] para darle las malas noticias a su gente.
 
-Tras atravesar el [[c. Haqak Suyukuna]], [[Tariq]] llega al [[Asentamiento de Rimawara]], siendo recibido por los lugareños con odio y repudio. [[Tariq]] no comprende porqué todos lo tratan de esa forma hasta que recuerda lo ocurrido con [[Saphi Puquna]] y la naturaleza a su alrededor; asumiendo que al eliminar a [[Artisipas]], no tiene caso contarle a los habitantes de lo ocurrido ya que probablemente ya lo saben. Los rimawarenses culpan a [[Tariq]] de todo lo ocurrido, recalcándole que jamás debió haber castigado a [[Qirat]] y que probablemente hizo todo lo que hizo para volverse el líder chamánico por celos hacia su mejor amigo.
+Tras atravesar el [[c. Haqak Suyukuna]], [[Tariq]] llega al [[Asentamiento de Rimawara]]. Mientras [[Tariq]] camina por su hogar [[Yachachiq Nanay]] se pregunta por unos momentos donde están, [[Tariq]] contesta la pregunta de [[Yachachiq Nanay]], diciéndole que este es el lugar de donde viene, contándole a su compañero un poco de su historia. 
 
-Mientras todo esto está ocurriendo, [[Yachachiq Nanay]] experimenta pro primera vez la emoción que él genera en los demás, sin comprenderlo, pero aún así llamándole la atención.
+[[Tariq]] camina hacia el cementerio de Rimawara, dirigiéndose hacia el árbol donde enterró a su hermana [[Irari]].
 
-Momentos después, [[Tariq]] camina hacia el cementerio de su aldea, yendo al árbol donde enterró a su hermana [[Irari]].
+Al llegar, [[Tariq]] cae de rodillas frente a la tumba de su hermana, rompiendo en llanto, [[Tariq]] grita desgarradoramente, pidiendo perdón a su hermana por todo lo que ha ocurrido. Cuando [[Tariq]] se calma un poco, [[Yachachiq Nanay]] pregunta a su compañero porqué está actuando de una forma tan extraña; [[Tariq]] toma este momento y continúa contando su historia entre lágrimas, enfocándose principalmente en el incidente con su mejor amigo [[Qirat]].
 
-[[Tariq]] intenta por unos momentos manipular el [[a. Llakha]] remanente del lugar de descanso de su hermana con el objetivo de terminar lo que [[Qirat]] inició, pero se detiene tras unos momentos, se disculpa con su hermana y se incorpora para irse.
+Unos momentos pasan hasta que a [[Tariq]] se le ocurre una idea.
 
-Cuando [[Tariq]] y [[Yachachiq Nanay]] están saliendo del cementerio de Rimawara, [[Yachachiq Nanay]] le dice a [[Tariq]] que siente una presencia; momentos después, se encuentran con [[Tuquska Wañuy]], la encarnación de la muerte.
+[[Tariq]] respira por unos momentos, intentando manipular el [[a. Llakha]] remanente del lugar de descanso de su hermana con el objetivo de terminar lo que [[Qirat]] inició. Unos momentos pasan y [[Tariq]] se detiene, toma aire profundamente y exhala. [[Tariq]] pone una mano en el árbol, disculpándose con su hermana, se incorpora y se retira.
 
-[[Tuquska Wañuy]] habla por unos momentos con [[Tariq]] y [[Yachachiq Nanay]], diciéndoles que no es la primera vez que un humano intenta hacer acto de nigromancia, además de ser un acto imperdonable a sus ojos.
+[[Tariq]] y [[Yachachiq Nanay]] salen del cementerio de Rimawara. Mientras tanto, el [[a. Llakha]] remanente manipulado por [[Tariq]] empieza a circular alrededor del cementerio, siendo imbuido con la esencia del [[a. Portafolio Divino]] de [[Yachachiq Nanay]].
 
-[[Tuquska Wañuy]] carga contra [[Tariq]] y [[Yachachiq Nanay]] en el cementerio de Rimawara, iniciando una nueva pelea contra una de las [[b. Encarnaciones Divinas]].
+Al regresar al [[Asentamiento de Rimawara]], [[Tariq]] se encuentra con algunos de los lugareños, siendo recibido con odio y repudio. [[Tariq]] los mira con una mirada vacía, bajando la cabeza, comprendiendo las emociones de los rimawarenses.
 
-[[Tariq]] y [[Yachachiq Nanay]] luchan con [[Tuquska Wañuy]], [[Tariq]] menciona que si no hubiese intervenido, nada de esto habría pasado, haciendo una catarsis frente a la encarnación de la muerte, quien lentamente empieza a retroceder debido al poder combinado de [[Tariq]] y [[Yachachiq Nanay]]
+Los lugareños fulminan a [[Tariq]] con la mirada, exclamando que sus mentiras han terminado, culpándolo de todo lo ocurrido, recalcándole que jamás debió haber castigado a [[Qirat]] y que probablemente hizo todo lo que hizo para volverse el líder chamánico por celos hacia su mejor amigo.
 
-Finalmente, [[Tariq]] logra derrotar a [[Tuquska Wañuy]] usando los poderes adquiridos de [[Saphi Puquna]] y [[Artisipas]], así como los poderes de [[Yachachiq Nanay]]. Agarrando por los cuernos a [[Tuquska Wañuy]] este le ofrece la posibilidad de tener a su hermana nuevamente, pero tras considerarlo por un momento, [[Tariq]] acaba con la vida de la encarnación de la muerte, diciendo que él no traería a su hermana a un mundo como este, donde la gente está agonizando, donde no pueden cargar con la realidad del mundo, y sobre todo, un mundo donde el sufrimiento no acabará después de acabar con él.
+Mientras todo esto está ocurriendo, [[Yachachiq Nanay]] experimenta por primera vez la reacción a su propio [[a. Portafolio Divino]], sin comprender la razón, pero aún así llamándole la atención.
 
-[[Tariq]] y [[Yachachiq Nanay]] absorben el [[a. Llakha]] de [[Tuquska Wañuy]].
+Los rimawarenses siguen culpando a [[Tariq]], en eso, uno de ellos es atacado por un [[f. Chinkasqa]] nacidos del deseo de [[Tariq]] de traer de vuelta a su hermana y la esencia del [[a. Portafolio Divino]] de [[Yachachiq Nanay]].
 
-Con la encarnación de la muerte fuera del [[c. Haqak Suyukuna]], los aldeanos del [[Asentamiento de Rimawara]] condenan a [[Tariq]] por quitarles la última piedad que solo la muerte les habría podido conceder, este estado hace que todos los rimawarenses se conviertan en [[f. Chinkasqa]] dispuestos a acabar con [[Tariq]]. Considerando todo esto, [[Tariq]] en un estado de trance y cansancio simplemente se incorpora y se prepara para acabar con la existencia de sus antiguos vecinos, amigos y protegidos.
+[[Tariq]] ve aterrado como los [[f. Chinkasqa]] vienen desde el cementerio de Rimawara, habiendo tomado tanto el semblante amazónico-éldrico de un espíritu corrupto, como el de los habitantes del [[Asentamiento de Rimawara]].
 
-Al terminar con la vida del [[Asentamiento de Rimawara]], [[Tariq]] no puede más, ha pasado por mucho y empieza a considerar acabar con todo de una vez por todas, no pudo salvar a su hermana, no pudo salvar a su pueblo, y no puede evitar destruir todo lo que toca. Todo lo que le queda, es [[Yachachiq Nanay]] y su dolor interno, esto hace que [[Tariq]] empiece a vagar por el [[c. Haqak Suyukuna]] sin rumbo.
+Los [[f. Chinkasqa]] empiezan a atacar a los rimawarenses, en eso, [[Tariq]] interfiere, empezando una lucha contra las hordas de [[f. Chinkasqa]], dándole tiempo a los lugareños para escapar. Sin embargo, a pesar de los esfuerzos de [[Tariq]], las almas corruptas de su pueblo no dejan de aparecer, siendo cada vez más numerosas.
 
-[[Yachachiq Nanay]] trata hablar con [[Tariq]] sin éxito, tratando de recordarle la razón por la que este pelea y lo que lo motivó todo este tiempo. [[Tariq]] solo se relega a decirle a [[Yachachiq Nanay]] que ya nada tiene caso y que mire a su alrededor, el mundo probablemente es incapaz de arreglarse, no solo por el estado en el que está, si no que ellos mismos han acabado con la vida de múltiples [[b. Encarnaciones Divinas]], asumiendo que un destino similar le haya llegado a las demás.
+[[Tariq]] combate contra los [[f. Chinkasqa]] sin descanso, Al notar que estas no dejan de aparecer, trata de llevarlas lejos del [[Asentamiento de Rimawara]], atrayéndolas al cementerio para intentar regresarlas a la tumba.
+
+[[Tariq]] llega al cementerio de Rimawara, luchando contra los [[f. Chinkasqa]], estos súbitamente dejan de aparecer. Unos momentos pasan y [[Tariq]] siente un gran escalofrío recorrer su espalda, escuchando una serie de pasos detrás suyo, se da la vuelta solo para encontrar a [[Tuquska Wañuy]], encarnación de la muerte.
+
+[[Tuquska Wañuy]] mira detenidamente a [[Tariq]] y [[Yachachiq Nanay]], la sensación es indescriptible para el humano. Con sudor recorriendo su piel, [[Tariq]] empieza a moverse lentamente mientras la encarnación lo sigue con el hocico.
+
+[[Tariq]] se detiene unos momentos, viendo a [[Tuquska Wañuy]] detenidamente. Unos segundos pasan y [[Tuquska Wañuy]] carga contra [[Tariq]] y [[Yachachiq Nanay]] en el cementerio de Rimawara, iniciando una nueva pelea contra una de las [[b. Encarnaciones Divinas]].
+
+[[Tariq]] y [[Yachachiq Nanay]] luchan con [[Tuquska Wañuy]] y, tras un largo y silencioso combate, [[Tuquska Wañuy]] lentamente empieza a retroceder debido al poder combinado de [[Tariq]] y [[Yachachiq Nanay]].
+
+ [[Tariq]] logra derrotar a [[Tuquska Wañuy]] usando los poderes adquiridos de [[Saphi Puquna]] y [[Artisipas]], así como los poderes de [[Yachachiq Nanay]]. Agarrando por los cuernos a [[Tuquska Wañuy]] este usa las pocas energías que le quedan para ofrecerle a [[Tariq]] la posibilidad de tener a su hermana nuevamente. [[Tariq]] piensa por unos momentos; sin gastar más energía de la necesaria, acaba con la vida de la encarnación de la muerte, diciendo que él no traería a su hermana a un mundo como este, donde la gente está agonizando, y sobre todo, un mundo donde el sufrimiento no acabará después de acabar con él.
+
+[[Tariq]] y [[Yachachiq Nanay]] absorben el [[a. Llakha]] de [[Tuquska Wañuy]], teniendo un momento para respirar.
+
+El momento es cortado rápidamente por los rimawarenses restantes que, a pesar de estar siendo atacados por los [[f. Chinkasqa]], son incapaces de poder morir. Al ver esto [[Tariq]] los mira con una mirada vacía, perdiendo toda la esperanza al quitarles la única piedad a la que podían aspirar, la muerte.
+
+[[Tariq]] no puede más, ha pasado por mucho, no pudo salvar a su hermana, no pudo salvar a su pueblo, y no puede evitar destruir todo lo que toca. Todo lo que le queda, es [[Yachachiq Nanay]] y su dolor interno, esto hace que [[Tariq]] empiece a vagar por el [[c. Haqak Suyukuna]] sin rumbo.
+
+La carga emocional y física dentro de [[Tariq]] hace que este caiga inconsciente dentro del [[c. Haqak Suyukuna]].
+
+[[Yachachiq Nanay]] despierta a [[Tariq]], encontrándose en una nueva zona del [[c. Haqak Suyukuna]] que, a pesar de la destrucción, emana una energía mucho más agradable y tranquila.
+
+[[Yachachiq Nanay]] trata hablar con [[Tariq]] para que se empiecen a mover. Sin éxito, [[Yachachiq Nanay]] le recuerda a [[Tariq]] la razón por la que este pelea y lo que lo motivó todo este tiempo. [[Tariq]] solo se relega a decirle a [[Yachachiq Nanay]] que ya nada tiene caso y que mire a su alrededor, el mundo probablemente es incapaz de arreglarse, no solo por el estado en el que está, si no que ellos mismos han acabado con la vida de múltiples [[b. Encarnaciones Divinas]], asumiendo que un destino similar le haya llegado a las demás.
 
 Mientras [[Tariq]] está perdido en sus pensamientos, él y [[Yachachiq Nanay]] escuchan una dulce voz llamarlos, voz que [[Yachachiq Nanay]] reconoce instantáneamente.
 
-[[Yachachiq Nanay]] le insta a [[Tariq]] que este se levante, que tienen que seguir a esa voz. [[Tariq]] se rehúsa hasta que [[Yachachiq Nanay]] le dice que a lo largo de su viaje este lo ha estado siguiendo y ayudando como un perro faldero, y que ahora es su turno de hacerle caso a él. Con las pocas fuerzas que le quedan a [[Tariq]], este se levanta pidiéndole a [[Yachachiq Nanay]] que lo guíe hacia la voz.
+[[Yachachiq Nanay]] le insta a [[Tariq]] que este se levante, que tienen que seguir a esa voz. [[Tariq]] se rehúsa hasta que [[Yachachiq Nanay]], tomando el manto de la voz de la razón, le dice que a lo largo de su viaje este lo ha estado siguiendo y ayudando como un perro faldero, y que ahora es su turno de hacerle caso a él. Con las pocas fuerzas que le quedan a [[Tariq]], este se levanta pidiéndole a [[Yachachiq Nanay]] que lo guíe hacia la voz.
+
+A lo largo del viaje [[Tariq]] y [[Yachachiq Nanay]] se enfrentan a una nueva variante de [[f. Chinkasqa]], representantes de las múltiples facetas del amor.
 
 Al llegar al origen de la voz, el [[c. Haqak Suyukuna]] se vuelve un espacio donde se puede sentir la compasión y el amor, levantando ligeramente los espíritus de [[Tariq]] este empieza a caminar con mucha más prisa.
 
@@ -107,16 +131,18 @@ Acabando con ellos fácilmente, [[Tariq]] y [[Yachachiq Nanay]] logran alcanzar 
 
 [[Qirat]] se dirige a [[Tariq]] diciendo que ha pasado mucho tiempo desde la última vez que se vieron; mientras todo eso ocurre, [[Qhawaq Nunañan]], la encarnación de los caminos, desciende de los cielos, posándose detrás de [[Qirat]].
 
-[[Tariq]] y [[Yachachiq Nanay]] para este punto se han convertido en un único ser, hablando al unísono al dirigirse hacia [[Qirat]], diciéndole que se prepare para pelear, porque esto acaba aquí y ahora.
+[[Tariq]] y [[Yachachiq Nanay]] para este punto se han convertido en un único ser ([[METANOIA VS. METAMORFOSIS]]), hablando al unísono al dirigirse hacia [[Qirat]], diciéndole que se prepare para pelear, porque esto acaba aquí y ahora.
 
 Un nuevo combate empieza entre los viejos amigos. El combate parece ser equitativo por ambos frentes, sin embargo el dominio superior del [[a. Llakha]] de [[Qirat]] le da cierta ventaja momentos. Durante la pelea, [[Tariq]] recuerda que al sellar a [[Qirat]] en el [[c. Haqak Suyukuna]], él y los [[d. Chamanes]] bloquearon el flujo de [[a. Llakha]] de su espíritu este no puede regresar al [[a. Sistema de Irrigación]] y que al no tener un cuerpo físico, no puede regresar al mundo terrenal, haciendo a [[Qirat]] virtualmente inmortal.
 
 Tras un largo combate, [[Tariq]] y [[Yachachiq Nanay]] logran agotar a [[Qirat]] lo suficiente como para hacerlo retroceder y demostrar su falta de poder. 
 
-[[Qirat]] se siente acorralado y, en su desesperación pone su mano en el semblante de [[Qhawaq Nunañan]]; manipulando su [[a. Llakha]], [[Qirat]] fuerza una fusión entre él y la encarnación de los caminos, absorbiendo su [[a. Llakha]] dentro de su cuerpo y creando una fusión imperfecta entre encarnación divina y humano.
+[[Qirat]] está acorralado frente a [[Tariq]] y [[Yachachiq Nanay]], en su desesperación mira a [[Qhawaq Nunañan]], poniendo su mano en él, manipula su [[a. Llakha]], forzando una fusión entre él y la encarnación de los caminos, absorbiendo las características de la encarnación divina dentro suyo.
 
 [[Tariq]] y [[Yachachiq Nanay]] se preparan para enfrentar a [[Qirat]] y el combate entre ellos inicia.
 
-Durante la batalla final, [[Tariq]] y [[Yachachiq Nanay]] trabajan juntos, usando todos los poderes que han dominado a lo largo de su viaje y así es como vencen a [[Qirat]].
+Durante la batalla final, [[Tariq]] y [[Yachachiq Nanay]] trabajan juntos, usando todos los poderes que han dominado a lo largo de su viaje y derrotando a [[Qirat]] por una última vez.
 
-[[Tariq]] y [[Yachachiq Nanay]] están frente al [[d. Río Eterno de la Creación]], instintivamente crean las [[e. Varas de la Creación]] para disponerse a crear un nuevo mundo.
+[[Tariq]] y [[Yachachiq Nanay]] están frente al [[d. Río Eterno de la Creación]], las [[e. Varas de la Creación]] aparecen en sus manos. [[Tariq]] clava las [[e. Varas de la Creación]] en el [[d. Río Eterno de la Creación]], iniciando así el génesis de un nuevo mundo.
+
+*Regresar: [[CONCEPTUALIZACIÓN NARRATIVA]]*
