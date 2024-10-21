@@ -46,7 +46,7 @@ Una dura batalla transcurre hasta que [[Tariq]] y [[Yachachiq Nanay]] agarran a 
 
 Finalmente, [[Tariq]] y [[Yachachiq Nanay]] absorben un fragmento del [[a. Llakha]] de [[Artisipas]] eliminando el concepto del engaño y las ilusiones del mundo.
 
-[[Tariq]] no se siente mucha diferencia en su estado anímico, aún sintiéndose culpable por todo lo que está ocurriendo. [[Yachachiq Nanay]], dentro de [[Tariq]] se comunica con el y le insta a seguir moviéndose, sin más discusión, [[Tariq]] se levanta y juntos salen del dominio de [[Artisipas]].
+[[Tariq]] no siente mucha diferencia en su estado anímico, aún sintiéndose culpable por todo lo que está ocurriendo. [[Yachachiq Nanay]], dentro de [[Tariq]] se comunica con él y le insta a seguir moviéndose, sin más discusión, [[Tariq]] se levanta y juntos salen del dominio de [[Artisipas]].
 
 Caminando de nuevo por el [[c. Haqak Suyukuna]], [[Tariq]] recuerda todo lo ocurrido antes de convertirse en el líder espiritual de su aldea, cómo detuvo a su viejo amigo [[Qirat]] de revivir a su hermana [[Irari]] por ir en contra de los preceptos chamánicos, cómo lo encerró en el [[c. Haqak Suyukuna]] condenándolo a un destino peor que la muerte, y cómo tomó el puesto que él debía tener.
 
