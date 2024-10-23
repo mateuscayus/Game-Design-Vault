@@ -1,17 +1,17 @@
 **PLANTEAMIENTO**
-[[Tariq]] es un miembro de la tribu de los [[d. Chamanes]] que, desde muy temprana edad fue convertido en el líder espiritual de su aldea, el [[Asentamiento de Rimawara]]. Últimamente, el hogar de Tariq ha estado sufriendo hambrunas y sequías, las cosechas no están brindando los resultados que los habitantes de Rimawara esperaban, hasta el punto en el que las masas están empezando a preocuparse por su propia integridad.
+[[Tariq]] es un miembro de la tribu de los [[d. Chamanes]] y líder espiritual de su aldea, el [[Asentamiento de Rimawara]]. Últimamente, el hogar de Tariq ha estado sufriendo hambrunas y sequías, las cosechas no están brindando los resultados que los habitantes de Rimawara esperaban, hasta el punto en el que las masas están empezando a preocuparse por su propia integridad.
 
-Al escuchar las preocupaciones de su gente, [[Tariq]] se dirige hacia el santuario que sus ancestros dedicaron a la encarnación de la cosecha, con el fin de realizar una ofrenda y apaciguar el posible resentimiento en la divinidad.
+Al escuchar las preocupaciones de su gente, [[Tariq]] se dirige hacia el santuario que sus ancestros dedicaron a la encarnación de la cosecha, [[Puquymiruru]], con el fin de realizar una ofrenda y apaciguar el posible resentimiento en la divinidad.
 
-Tariq regresa a su aldea y avisa a todos de la ofrenda y que solo queda esperar. Horas después, al anochecer, [[Tariq]] escucha un tumulto a las afueras de su hogar. Los habitantes del [[Asentamiento de Rimawara]] se están volviendo locos por la falta de comida, algunos están cayendo al piso del sufrimiento y otros están comiendo las pequeñas ofrendas dejadas en sus sembradíos por la desesperación. [[Tariq]] al ver esto y sale corriendo hacia el templo de la cosecha con el objetivo de dialogar directamente con la encarnación de la cosecha.
+Tariq regresa a su aldea y avisa a todos de la ofrenda y que solo queda esperar. Horas después, al anochecer, [[Tariq]] escucha un tumulto a las afueras de su hogar. Los habitantes del [[Asentamiento de Rimawara]] se están volviendo locos por la falta de comida, algunos están cayendo al piso del sufrimiento y otros están comiendo las pequeñas ofrendas dejadas en sus sembradíos por la desesperación. [[Tariq]] trata de razonar con su pueblo y, al no tener éxito, sale corriendo hacia el templo de la cosecha con el objetivo de dialogar directamente con [[Puquymiruru]].
 
-Al llegar al templo, [[Tariq]] nota que ha ingresado dentro del [[c. Haqak Suyukuna]], un plano intermedio entre el mundo de las [[b. Encarnaciones Divinas]] y el plano de los humanos. Ignorando su situación actual, [[Tariq]] intenta contactar con la encarnación de la cosecha, [[Puquymiruru]], quien no da respuesta alguna a sus plegarias. [[Tariq]] presiente que algo extraño está ocurriendo, ya que esta encarnación siempre ha contestado rápidamente a las plegarias de su pueblo, así que intenta realizar un contacto de nuevo.
+Al llegar al templo, [[Tariq]] nota que ha ingresado dentro del [[c. Haqak Suyukuna]], un plano intermedio entre el mundo de las [[b. Encarnaciones Divinas]] y el plano de los humanos. Ignorando lo inusual de su ingreso, [[Tariq]] intenta contactar con la encarnación de la cosecha, [[Puquymiruru]], quien no da respuesta alguna a sus plegarias. [[Tariq]] presiente que algo extraño está ocurriendo, ya que esta encarnación siempre ha contestado rápidamente a las plegarias de su pueblo, así que intenta realizar un contacto de nuevo.
 
 Varios intentos han transcurrido y [[Tariq]] no recibe respuesta de [[Puquymiruru]]. Cayendo en la desesperación, [[Tariq]] hace una plegaria abierta hacia los dioses, esperando que le conteste el que lo pueda escuchar. Unos momentos pasan y frente a [[Tariq]] aparece [[Yachachiq Nanay]], la encarnación de la ira y el dolor.
 
 Sorprendido con la presencia de [[Yachachiq Nanay]], [[Tariq]] le pregunta qué es lo que está ocurriendo y la razón por la cual las [[b. Encarnaciones Divinas]] no están contestando las plegarias de los [[c. Humanos]].
 
-[[Yachachiq Nanay]] solo se relega a decirle a [[Tariq]] que no está seguro de lo que está ocurriendo. Durante su conversación, [[Yachachiq Nanay]] y [[Tariq]] son atacados por un grupo de [[f. Chinkasqa]], espíritus corruptos dentro del [[c. Haqak Suyukuna]] y, durante ese combate, [[Yachachiq Nanay]] y [[Tariq]] se fusionan.
+[[Yachachiq Nanay]], estando desorientado, solo se relega a decirle a [[Tariq]] que no está seguro de lo que está ocurriendo. Durante su conversación, [[Yachachiq Nanay]] y [[Tariq]] son atacados por un grupo de [[f. Chinkasqa]], espíritus corruptos dentro del [[c. Haqak Suyukuna]] y, durante ese combate, [[Yachachiq Nanay]] y [[Tariq]] se fusionan accidentalmente.
 
 Como un solo ser, [[Yachachiq Nanay]] y [[Tariq]] se encargan rápidamente del grupo de [[f. Chinkasqa]] y, sin saber lo que les acaba de ocurrir, ambos exploran el [[c. Haqak Suyukuna]] hasta llegar a lo que [[Tariq]] comprende que es el eco del templo de la cosecha dentro del [[c. Haqak Suyukuna]].
 
@@ -23,7 +23,7 @@ Mientras [[Saphi Puquna]] habla con [[Tariq]], [[Puquymiruru]] empieza a disolve
 
 Una ardua batalla inicia donde tanto [[Tariq]] como [[Yachachiq Nanay]] se ven obligados a trabajar como un equipo para no morir a manos de la encarnación de la naturaleza misma. Tras un largo combate, [[Tariq]] usa los poderes de [[Yachachiq Nanay]] para atravesar las defensas de [[Saphi Puquna]] y acabar con su vida.
 
-Al caer, un fragmento de [[Saphi Puquna]] es absorbido inconscientemente por [[Tariq]] y [[Yachachiq Nanay]], sin embargo la muerte de la encarnación de la naturaleza empieza a manifestarse lentamente en el mundo, iniciando con la muerte de las plantas al rededor de [[Tariq]] y [[Yachachiq Nanay]].
+Al caer, un fragmento de [[Saphi Puquna]] se empieza a disolver lentamente en [[a. Llakha]], un fragmento es absorbido inconscientemente por [[Tariq]] y [[Yachachiq Nanay]], sin embargo la muerte de la encarnación de la naturaleza empieza a manifestarse lentamente en el mundo, iniciando con la muerte de las plantas al rededor de [[Tariq]] y [[Yachachiq Nanay]].
 
 Cuando [[Saphi Puquna]] deja de existir, [[Tariq]] y [[Yachachiq Nanay]] se separan en sus propias entidades nuevamente y, mientras [[Yachachiq Nanay]] parece estar tranquilo, [[Tariq]] cae en un cuadro de ira y desesperación al haber acabado con la vida de aquella entidad a la que siempre le rindió culto y respeto.
 
@@ -32,17 +32,17 @@ Tras la muerte de [[Saphi Puquna]], [[Tariq]] cae en un cuadro de ira y desesper
 
 Juntos atacan grandes grupos de [[f. Chinkasqa]] con el objetivo de aliviar sus emociones.
 
-Durante su rabia [[Tariq]] y [[Yachachiq Nanay]] tienen un momento entre los dos donde el primero le pregunta a la encarnación quién es el responsable de generar algo así, [[Yachachiq Nanay]], sin saber la respuesta le comenta a [[Tariq]] que no tiene idea, pero que usualmente este tipo de incidentes son debido a la encarnación divina del engaño y las ilusiones, [[Artisipas]].
+Durante su rabia [[Tariq]] y [[Yachachiq Nanay]] tienen un momento entre los dos donde el primero le pregunta a la encarnación quién es el responsable de generar algo así, [[Yachachiq Nanay]] le comenta a [[Tariq]] que usualmente este tipo de incidentes son debido a la encarnación del engaño y las ilusiones, [[Artisipas]].
 
 [[Tariq]], en su ira, le dice a [[Yachachiq Nanay]] que lo lleve donde este "[[Artisipas]]". [[Yachachiq Nanay]] no opone resistencia y juntos empiezan a atravesar el [[c. Haqak Suyukuna]].
 
-Después de un largo tiempo explorando, [[Tariq]] y [[Yachachiq Nanay]] llegan a un área del [[c. Haqak Suyukuna]] altamente influenciada por la esencia de [[Artisipas]].
+Después de un tiempo explorando, [[Tariq]] y [[Yachachiq Nanay]] llegan a un área del [[c. Haqak Suyukuna]] altamente influenciada por la esencia de [[Artisipas]].
 
 [[Tariq]] y [[Yachachiq Nanay]] se adentran en esta versión trastornada del [[c. Haqak Suyukuna]], luchando contra hordas de [[f. Chinkasqa]] y descubriendo nuevos poderes, atravesando los engaños de la encarnación de las ilusiones y luchando aún más, llegan hacia la morada de [[Artisipas]].
 
 [[Artisipas]] provoca a [[Tariq]] con mentiras e ilusiones de su vida, sin embargo, su ira intensificada por la presencia de [[Yachachiq Nanay]] evita que este caiga en el engaño de la encarnación. [[Tariq]] carga contra [[Artisipas]] usando sus nuevos poderes y evitando que la deidad pueda escapar de sus manos.
 
-Una dura batalla transcurre hasta que [[Tariq]] y [[Yachachiq Nanay]] agarran a [[Artisipas]] altamente debilitado. [[Artisipas]] por un momento tiene una epifanía, recordando vagamente los momentos de su nacimiento en los albores de la creación, levantando la mirada observa a [[Tariq]] en su forma fusionada con [[Yachachiq Nanay]], pudiendo solo esbozar una sonrisa reconoce a la fusión como el inicio de un nuevo comienzo: "Eres tu..." dice la encarnación del engaño, muriendo al ser atravesado por las garras de [[Yachachiq Nanay]] al final del combate.
+Una dura batalla transcurre hasta que [[Tariq]] y [[Yachachiq Nanay]] agarran a [[Artisipas]] altamente debilitado. [[Artisipas]] por un momento tiene una epifanía, recordando vagamente los momentos de su creación, levantando la mirada observa a [[Tariq]] en su forma fusionada con [[Yachachiq Nanay]], carcajeando, cree reconoce a la fusión como [[a. El Creador]]. Finalmente, [[Artisipas]] amenaza a [[Tariq]], muriendo al ser atravesado por las garras de [[Yachachiq Nanay]].
 
 Finalmente, [[Tariq]] y [[Yachachiq Nanay]] absorben un fragmento del [[a. Llakha]] de [[Artisipas]] eliminando el concepto del engaño y las ilusiones del mundo.
 
@@ -98,19 +98,17 @@ La carga emocional y física dentro de [[Tariq]] hace que este caiga inconscient
 
 [[Yachachiq Nanay]] despierta a [[Tariq]], encontrándose en una nueva zona del [[c. Haqak Suyukuna]] que, a pesar de la destrucción, emana una energía mucho más agradable y tranquila.
 
-[[Yachachiq Nanay]] trata hablar con [[Tariq]] para que se empiecen a mover. Sin éxito, [[Yachachiq Nanay]] le recuerda a [[Tariq]] la razón por la que este pelea y lo que lo motivó todo este tiempo. [[Tariq]] solo se relega a decirle a [[Yachachiq Nanay]] que ya nada tiene caso y que mire a su alrededor, el mundo probablemente es incapaz de arreglarse, no solo por el estado en el que está, si no que ellos mismos han acabado con la vida de múltiples [[b. Encarnaciones Divinas]], asumiendo que un destino similar le haya llegado a las demás.
-
 Mientras [[Tariq]] está perdido en sus pensamientos, él y [[Yachachiq Nanay]] escuchan una dulce voz llamarlos, voz que [[Yachachiq Nanay]] reconoce instantáneamente.
 
 [[Yachachiq Nanay]] le insta a [[Tariq]] que este se levante, que tienen que seguir a esa voz. [[Tariq]] se rehúsa hasta que [[Yachachiq Nanay]], tomando el manto de la voz de la razón, le dice que a lo largo de su viaje este lo ha estado siguiendo y ayudando como un perro faldero, y que ahora es su turno de hacerle caso a él. Con las pocas fuerzas que le quedan a [[Tariq]], este se levanta pidiéndole a [[Yachachiq Nanay]] que lo guíe hacia la voz.
 
 A lo largo del viaje [[Tariq]] y [[Yachachiq Nanay]] se enfrentan a una nueva variante de [[f. Chinkasqa]], representantes de las múltiples facetas del amor.
 
-Al llegar al origen de la voz, el [[c. Haqak Suyukuna]] se vuelve un espacio donde se puede sentir la compasión y el amor, levantando ligeramente los espíritus de [[Tariq]] este empieza a caminar con mucha más prisa.
+Al llegar al origen de la voz, el [[c. Haqak Suyukuna]] se vuelve un espacio donde se puede sentir la compasión y el amor, levantando ligeramente el espíritu de [[Tariq]], este empieza a caminar con mucha más prisa.
 
 Al llegar al núcleo de este dominio, [[Tariq]] y [[Yachachiq Nanay]] se encuentran con [[Maywakuyai]], la encarnación del amor y la compasión, quien, a diferencia de las demás [[b. Encarnaciones Divinas]], esta solo quiere hablar con ellos.
 
-[[Maywakuyai]] puede sentir a [[Yachachiq Nanay]] dentro del cuerpo de [[Tariq]] y empieza a hablar con ambos. Les menciona que la mayor parte del sufrimiento del mundo actual está causado por el amor que [[a. Las Razas de la Creación]] le tienen al mundo, y que nunca fue su intención hacerle esto a aquellos a los que les da tan hermosa emoción.
+[[Maywakuyai]] puede sentir a [[Yachachiq Nanay]] dentro del cuerpo de [[Tariq]] y empieza a hablar con ambos. Les menciona que la mayor parte del sufrimiento del mundo actual está causado por el amor que [[a. Las Razas de la Creación]] le tienen al mundo, y que nunca fue su intención hacerle esto a aquellos a los que experimentan esta emoción.
 
 [[Maywakuyai]] entrega una fracción de su poder voluntariamente a [[Tariq]] y a [[Yachachiq Nanay]], diciendo que si aún están dispuestos a pelear por este mundo, mantengan la frente en alto y vean todo lo que está ocurriendo hasta el final, puesto que el verdadero amor es realizar el mayor sacrificio que puedes hacer por los demás, y que es por eso, que [[Maywakuyai]] decidirá dejar de existir para que [[a. Las Razas de la Creación]] dejen de sufrir por lo que una vez fue.
 
@@ -118,31 +116,31 @@ Mientras [[Maywakuyai]] está dejando de existir, un humano enmascarado aparece 
 
 [[Tariq]] y [[Yachachiq Nanay]] son agarrados por sorpresa por la figura enmascarada e inicia un combate entre ellos.
 
-La figura enmascarada aparenta ser mucho más poderosa que [[Yachachiq Nanay]] y [[Tariq]] juntos, siendo capaz de manipular el [[a. Llakha]] de la fusión a tal grado de poder forzar una separación entre [[Yachachiq Nanay]] y [[Tariq]].
+La figura enmascarada aparenta ser equiparable al poder de [[Yachachiq Nanay]] y [[Tariq]] juntos. Un ruido ensordecedor proveniente del [[c. Haqak Suyukuna]] hace que la figura enmascarada retroceda y abandone el dominio del amor y la compasión.
 
 **DESENLACE**
 La tensión es alta, la figura enmascarada escapa del dominio del amor y la compasión tras acabar con la vida de [[Maywakuyai]] frente a los ojos de [[Tariq]] y [[Yachachiq Nanay]].
 
-[[Tariq]] y [[Yachachiq Nanay]] salen en búsqueda de la figura enmascarada, persiguiéndola por todo lo que queda del [[c. Haqak Suyukuna]], se enfrentan a los múltiples [[f. Chinkasqa]] que esta manda en su dirección para detenerlos.
+[[Tariq]] y [[Yachachiq Nanay]] salen en búsqueda de la figura enmascarada, persiguiéndola por todo lo que queda del [[c. Haqak Suyukuna]], enfrentándose a múltiples [[f. Chinkasqa]] que esta manda en su dirección para detenerlos.
 
-Acabando con ellos fácilmente, [[Tariq]] y [[Yachachiq Nanay]] logran alcanzar a la figura enmascarada en el núcleo del [[c. Haqak Suyukuna]], un gran lago de [[a. Llakha]] concentrado donde esta los espera.
+Acabando con ellos fácilmente, [[Tariq]] y [[Yachachiq Nanay]] logran alcanzar a la figura enmascarada en el núcleo del [[c. Haqak Suyukuna]], un gran lago de [[a. Llakha]] concentrado donde un gran [[g. Yatunllaqi]] con forma de ballena nada.
 
 [[Tariq]] se dirige hacia la figura enmascarada, diciendo que ya no tiene sentido seguir jugando y que ya sabe quién está detrás de la máscara., [[Qirat]] sonriendo se quita la máscara confirmando las sospechas de [[Tariq]].
 
-[[Qirat]] se dirige a [[Tariq]] diciendo que ha pasado mucho tiempo desde la última vez que se vieron; mientras todo eso ocurre, [[Qhawaq Nunañan]], la encarnación de los caminos, desciende de los cielos, posándose detrás de [[Qirat]].
+[[Qirat]] se dirige a [[Tariq]] diciendo que ha pasado mucho tiempo desde la última vez que se vieron.
 
-[[Tariq]] y [[Yachachiq Nanay]] para este punto se han convertido en un único ser ([[METANOIA VS. METAMORFOSIS]]), hablando al unísono al dirigirse hacia [[Qirat]], diciéndole que se prepare para pelear, porque esto acaba aquí y ahora.
+[[Tariq]] y [[Yachachiq Nanay]] para este punto se han convertido en un único ser, hablando al unísono al dirigirse hacia [[Qirat]], preparándose para pelear y acabar todo de una vez por todas.
 
-Un nuevo combate empieza entre los viejos amigos. El combate parece ser equitativo por ambos frentes, sin embargo el dominio superior del [[a. Llakha]] de [[Qirat]] le da cierta ventaja momentos. Durante la pelea, [[Tariq]] recuerda que al sellar a [[Qirat]] en el [[c. Haqak Suyukuna]], él y los [[d. Chamanes]] bloquearon el flujo de [[a. Llakha]] de su espíritu este no puede regresar al [[a. Sistema de Irrigación]] y que al no tener un cuerpo físico, no puede regresar al mundo terrenal, haciendo a [[Qirat]] virtualmente inmortal.
+Un nuevo combate empieza entre los viejos amigos. El combate parece ser equitativo por ambos frentes, sin embargo el dominio superior del [[a. Llakha]] de [[Qirat]] le da cierta ventaja momentos. 
 
 Tras un largo combate, [[Tariq]] y [[Yachachiq Nanay]] logran agotar a [[Qirat]] lo suficiente como para hacerlo retroceder y demostrar su falta de poder. 
 
-[[Qirat]] está acorralado frente a [[Tariq]] y [[Yachachiq Nanay]], en su desesperación mira a [[Qhawaq Nunañan]], poniendo su mano en él, manipula su [[a. Llakha]], forzando una fusión entre él y la encarnación de los caminos, absorbiendo las características de la encarnación divina dentro suyo.
+[[Qirat]] está acorralado frente a [[Tariq]] y [[Yachachiq Nanay]], en su desesperación mira a su [[g. Yatunllaqi]], poniendo su mano en él, manipulando su [[a. Llakha]] y asimilando todo el [[a. Llakha]] que ha acumulado dentro suyo, cambiando su aspecto físico..
 
-[[Tariq]] y [[Yachachiq Nanay]] se preparan para enfrentar a [[Qirat]] y el combate entre ellos inicia.
+[[Tariq]] y [[Yachachiq Nanay]] se preparan para enfrentar a [[Qirat]] una vez más.
 
-Durante la batalla final, [[Tariq]] y [[Yachachiq Nanay]] trabajan juntos, usando todos los poderes que han dominado a lo largo de su viaje y derrotando a [[Qirat]] por una última vez.
+Durante la batalla final, [[Tariq]] y [[Yachachiq Nanay]] trabajan juntos, usando todos los poderes que han dominado a lo largo de su viaje y derrotan a [[Qirat]] por última vez.
 
-[[Tariq]] y [[Yachachiq Nanay]] están frente al [[d. Río Eterno de la Creación]], las [[e. Varas de la Creación]] aparecen en sus manos. [[Tariq]] clava las [[e. Varas de la Creación]] en el [[d. Río Eterno de la Creación]], iniciando así el génesis de un nuevo mundo.
+[[Tariq]] y [[Yachachiq Nanay]] están frente al [[d. Río Eterno de la Creación]], las [[e. Varas de la Creación]] aparecen en sus manos. [[Tariq]] clava las [[e. Varas de la Creación]] en el [[d. Río Eterno de la Creación]], iniciando así el génesis de un nuevo mundo sin percatarse que están re-creando el mismo mundo que acaban de destruir.
 
 *Regresar: [[CONCEPTUALIZACIÓN NARRATIVA]]*
