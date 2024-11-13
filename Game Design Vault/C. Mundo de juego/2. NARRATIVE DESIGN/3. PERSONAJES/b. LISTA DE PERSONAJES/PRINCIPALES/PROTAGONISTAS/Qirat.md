@@ -5,7 +5,7 @@
 > **RANGO NARRATIVO:** Principal Antagonista
 
 **DESCRIPCIÓN FÍSICA**
-De no ser por los tatuajes que cubren su cuerpo, [[Qirat]] se ve como un humano común y corriente. Viste con ropajes andrajosos y desgastados, destacando por el par de varas que porta en cada mano y la máscara que cubre su cara mayor parte del tiempo.
+De no ser por los tatuajes y el [[a. Llakha]] cristalizado formado en protuberancias que sobresalen ligeramente de su cuerpo, [[Qirat]] se ve como un humano común y corriente. Viste con ropajes andrajosos y desgastados. Porta una máscara ceremonial con dos pares de cuernos que cubren toda su cara y, en cada mano, un cetro de [[a. Llakha]] cristalizado que funge como un arma contundente.
 
 **HOJA DE VIDA**
 [[Qirat]] en el pasado fue el mejor amigo y casi hermano de otra madre de [[Tariq]]. Salía con [[Irari]], la hermana de su mejor amigo, y era el prospecto perfecto para ser el siguiente líder de su pueblo por su visión futurista y firmeza a la hora de tomar decisiones.
@@ -16,9 +16,9 @@ Después de la muerte de [[Irari]] durante [[f. La Caída de Rimawara]], [[Qirat
 
 El cuerpo de [[Qirat]] se descompone con el pasar del tiempo, pero debido a las marcas impuestas por [[Tariq]], el [[a. Llakha]] de [[Qirat]] está cortado del flujo de [[a. Llakha]], haciéndolo virtualmente inmortal.
 
-Mientras está en el [[c. Haqak Suyukuna]], [[Qirat]] usa su tiempo para mejorar su control sobre el [[a. Llakha]] y aprendiendo a usarlo de formas que los [[d. Chamanes]] jamás habían considerado.
+Durante su tiempo en el [[c. Haqak Suyukuna]], [[Qirat]] domina el control del [[a. Llakha]], convirtiéndolo en algo más que una forma de armonizarse con el mundo, algo que los [[d. Chamanes]] jamás habían considerado.
 
 **ACTUALIDAD**
-[[Qirat]] viaja a lo largo del [[c. Haqak Suyukuna]] acabando con los [[g. Yatunllaqi]], recolectando [[a. Llakha]] para poder traer a [[Irari]] de vuelta a la vida, todo mientras manipula a [[Qhawaq Nunañan]] la encarnación de los caminos, para que este haga lo que él desee.
+[[Qirat]] viaja a lo largo del [[c. Haqak Suyukuna]] acabando con los [[g. Yatunllaqi]], acumulando su [[a. Llakha]] en un punto concentrado (ver: "[[Quip'uchukay]]") para poder traer a [[Irari]] de vuelta a la vida.
 
 *Regresar: [[PERSONAJES PRINCIPALES]]*

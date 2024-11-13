@@ -9,3 +9,5 @@
 
 **DESCRIPCIÓN FÍSICA**
 [[Puquymiruru]] tiene el semblante de una sátiro cuyos cuernos se extienden como ramas, germinando pequeños frutos en sus terminaciones. Toma ciertas características similares a [[Saphi Puquna]] al ser un vestigio de esta misma, teniendo un par de alas pequeñas que porta como una falda.
+
+*Regresar: [[PERSONAJES SECUNDARIOS]].*

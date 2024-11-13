@@ -11,7 +11,7 @@ _Su nombre proviene del quechua “Yachachiq” (Maestro) y “Nanay” (Dolor).
 [[Yachachiq Nanay]] se presenta como un felino con características de jaguar y una serie tentáculos como apéndices en la espalda.
 
 **TRASFONDO**
-Desde su nacimiento, [[Yachachiq Nanay]] siempre ha sido visto como una figura de respeto entre las [[b. Encarnaciones Divinas]] al encarnar la llegada de eventos mayores.
+Desde su nacimiento, [[Yachachiq Nanay]] siempre ha sido visto como una figura de respeto entre las [[b. Encarnaciones Divinas]].
 
 [[Maywakuyai]], la encarnación del amor y la compasión tiene una ligera conexión con [[Yachachiq Nanay]], siendo la única que comprende su naturaleza violenta y que no lo culpa por el daño que le pueda causar al mundo.
 
